@@ -1,0 +1,1 @@
+# Kecerdasan_Buatan_Jonatahan
